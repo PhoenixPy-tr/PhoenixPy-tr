@@ -4,4 +4,4 @@
 
 - 🏀 Professional basketball player
 
-- From Turkey
+- 🇹🇷 From Turkey
