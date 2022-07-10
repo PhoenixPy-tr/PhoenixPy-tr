@@ -1,4 +1,4 @@
-- 👑 Owner / Founder of A Studios
+- 👑 Ceo / Founder of AcnSoft
 
 - 🧑‍💻 Programmer
 
